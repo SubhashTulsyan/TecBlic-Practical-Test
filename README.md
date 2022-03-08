@@ -1,1 +1,0 @@
-# TecBlic-Practical-Test
